@@ -12,7 +12,7 @@ The PAL leaders for 2021/22 are:
 | [Jake](https://www.linkedin.com/in/jakedves/)   | jd2229@bath.ac.uk |
 | [Antony](https://www.linkedin.com/in/antony-rogers-b6124a216/) | asr70@bath.ac.uk |
 | [Shivam](https://www.linkedin.com/in/sethi-shivam/) | ss3618@bath.ac.uk |
-| Desi | dp796@bath.ac.uk |
+| [Desislava](https://www.linkedin.com/in/desislava-petrova-92330b1b5/) | dp796@bath.ac.uk |
 | Fiona | ycl208@bath.ac.uk |
 
 We work together to provide weekly sessions with slides and activities on topics that students find difficult.
